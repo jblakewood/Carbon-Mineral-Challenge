@@ -1,2 +1,2 @@
 # Carbon-Mineral-Challenge
-Carbon Mineral Challenge, December 2018–2019
+Carbon Mineral Challenge, December 2015–September 2019
